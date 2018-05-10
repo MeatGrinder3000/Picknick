@@ -1,5 +1,5 @@
 +++ UPDATE +++ Die Entscheidung für das finale Wochenende wird
-voraussichtlich Montag den 27.08. getroffen. +++ UPDATE +++
+voraussichtlich Montag den 20.08. getroffen. +++ UPDATE +++
 
 
 # Picknick 2018
