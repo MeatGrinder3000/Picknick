@@ -82,4 +82,4 @@ Nein. Der nächste Kiosk ist in D-Hamm.
 
 **Wie häufig kommen Updates auf dieser Seite?**
 
-Keine Ahnung. Unregelmäßig. Sie werden immer obern auf der Seite mit +++ UPDATE ±±± angezeigt. Schau am besten zeitnah zum Picknick nochmal vorbei.
+Keine Ahnung. Unregelmäßig. Sie werden immer obern auf der Seite mit +++ UPDATE +++ angezeigt. Schau am besten zeitnah zum Picknick nochmal vorbei.
