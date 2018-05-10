@@ -74,7 +74,7 @@ Nein – aber wir arbeiten an einer (provisorischen) Lösung :shit:
 
 **Was kann ich noch mitbringen?**
 
-Outdoor Spiele.
+Outdoor Spiele und ggf. eine Decke oder Sitzgelegenheit.
 
 **Kann man in der Nähe einkaufen?**
 
